@@ -1,1 +1,1 @@
-# CPS2.io
+https://ekrin1.github.io/CPS2.io/
